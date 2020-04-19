@@ -2,6 +2,8 @@
 Credits:
 Cicada Song by Nature Walker on Youtube - https://www.youtube.com/watch?v=qgGt0F4IJV0 ~royalty free
 
+===================================================================
+
 AESTHETIC EXPLAINATION:
 
 During WW2 the Japanese government restricted magazines, newspapers ads and various other things to using only black and red ink(in addition to the white of the page) due to resource scarsity during the war. I personally love the aesthetic this created and have wanted to work with it for a long time.
@@ -12,7 +14,7 @@ It is a long standing tradition(granted not a very serious one) in Japan for chi
 
 This game is about a Japanese child catching stag beetles in autumn despite the war. I know I'm so deep.
 
-
+===================================================================
 
 Point Breakdown:
 
@@ -42,7 +44,7 @@ Point Breakdown:
 
 65
 
-
+===================================================================
 
 TOTAL: 100 
 
